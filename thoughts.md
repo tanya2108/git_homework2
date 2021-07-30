@@ -1,0 +1,2 @@
+-  Always asks questions and clarification when lost and confused  
+- Practice Practice Practice
